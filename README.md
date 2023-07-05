@@ -14,4 +14,4 @@ I'm [Phil Santoro](https://philsantoro.com), an entrepreneur and Co-Founder of [
 - 📍 Phil lives in San Francisco, California, with his wife, Rubi.
 - 🏫 Phil graduated from the University of Cincinnati Carl H. Lindner College of Business in 2013.
 - 📫 You can reach Phil on [LinkedIn](https://www.linkedin.com/in/philsantoro/), [Twitter](https://twitter.com/philsantoro), and [Quora](https://www.quora.com/profile/Phil-Santoro).
-- ⚡ Fun fact: In 2014 Phil [broke a Guinness World Record](https://www.quora.com/If-you-set-a-Guinness-World-Record-do-they-pay-you-money/answer/Phil-Santoro?ch=10&oid=1477743675805238&share=54408f4f&srid=5pYa&target_type=answer) for competeitve eating. He is on page 86 of the 2016 Guinness Book of World Records.
+- ⚡ Fun fact: In 2014 Phil [broke a Guinness World Record](https://www.quora.com/If-you-set-a-Guinness-World-Record-do-they-pay-you-money/answer/Phil-Santoro?ch=10&oid=1477743675805238&share=54408f4f&srid=5pYa&target_type=answer) for competitive eating. He is on page 86 of the 2016 Guinness Book of World Records.
